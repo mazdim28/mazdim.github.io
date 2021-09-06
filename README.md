@@ -1,0 +1,1 @@
+# mazdim.github.io
